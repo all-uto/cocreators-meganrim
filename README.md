@@ -11,6 +11,8 @@ Meganrim is a alpha project in my effort w CoCreators/uto for now.  It's for com
 Looking for co-creators of all kinds for producing a story driven video about technoheroism and utopia Any ideas or just to have fun brainstorming.  Also open for discussion on AI NPCs and ethics. All welcome including artists, writers, musiciaans, ect.
 Desire to push the limits of what tech and creativity can do using comprehensive video production
 
+Considering telling the majorty if not all of the video though the first person perspective as if playing the game in realism.
+
 ---
 
 resource gallery:
